@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ahamed-sha-11
+👋 Hi, I’m @ahamed-sha-11
 
 🌱 I’m currently learning voc college thoothukudi
 
